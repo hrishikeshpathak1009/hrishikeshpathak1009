@@ -13,11 +13,8 @@ I’m a **high-performing engineering student** with a strong foundation in **ma
 - 📚 **Academic Excellence**
   - Class X: **98%** (School Record)
   - Class XII: **95%** (School Topper)
-- 🏆 **Jagran Genius Award** recipient (Class 10)
-- 🎓 Cleared **JEE Main**
+- 🎓 Cleared **JEE / CUET and multiple enterance exams**
 - 🪖 Cleared **NDA Written Exam** twice
-- 🔬 Applied for **research internship at JNCASR**
-- 🤝 Active **NSS volunteer**, selected among top 10 students for commitment & grit
 
 ---
 
