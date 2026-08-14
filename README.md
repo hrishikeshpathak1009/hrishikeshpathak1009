@@ -1,6 +1,6 @@
 # 👋 Hi, I’m Hrishikesh Pathak  
 
-🎓 **B.Tech (Electronics & Communication Engineering)** @ **IIIT Vadodara**  
+🎓 **B.Tech (Computer science & Engineering)** @ **IIIT Vadodara**  
 📍 India  
 
 I’m a **high-performing engineering student** with a strong foundation in **mathematics, programming, and problem-solving**, driven by curiosity for **technology, research, and real-world impact**. I enjoy building things, understanding systems deeply, and pushing my limits—academically and beyond.
